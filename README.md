@@ -1,11 +1,4 @@
-- 👋 Hi, I’m @egamberdiyev009
-- 👀 I’m interested in ... Gaming
-- 🌱 I’m currently learning ... React Native
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... Google
-- 😄 Pronouns: ... Developer , Gamer
-- ⚡ Fun fact: ... NO 
+- Anonymous
  - Telegram: https://t.me/Nozimkhan
  - Instagram: https://www.instagram.com/sheyx_o90_/
- - Name: Nozimjon
- - Surname: Egamberdiyev
+
