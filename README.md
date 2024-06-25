@@ -5,7 +5,7 @@
 - 📫 How to reach me ... Google
 - 😄 Pronouns: ... Developer , Gamer
 - ⚡ Fun fact: ... NO 
- - Telegram: https://t.me/Anonymous_uzz
- - Instagram: https://www.instagram.com/nozimjon_weyx/
+ - Telegram: https://t.me/Nozimkhan
+ - Instagram: https://www.instagram.com/sheyx_o90_/
  - Name: Nozimjon
  - Surname: Egamberdiyev
